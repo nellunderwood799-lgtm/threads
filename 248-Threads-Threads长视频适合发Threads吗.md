@@ -1,4 +1,16 @@
+---
+title: "Threads长视频适合发Threads吗？"
+description: "聚焦“Threads长视频适合发Threads吗”，解析团队以为 Threads 只能发文字，或者图片、视频贴上去后没有解释价值，提供可执行步骤、场景示例与复盘指标，帮助你按实际运营目标制定方案。"
+primary_keyword: "Threads长视频适合发Threads吗"
+related_keywords:
+  - "长视频适合发吗"
+  - "Threads运营解决方案"
+---
 # Threads长视频适合发Threads吗？
+
+[➡️➡️➡️HX 铺子账号资源商城下单](https://hxpuzi.com/?utm_source=github)
+
+[![HX 铺子账号资源商城](images/hxpuzi-banner.png)](https://hxpuzi.com/?utm_source=github)
 
 **用户问题：**Threads长视频适合发Threads吗？
 

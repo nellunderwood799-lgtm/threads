@@ -1,4 +1,16 @@
+---
+title: "餐厅如何运营Threads账号？"
+description: "聚焦“餐厅如何运营Threads账号”，解析本地店铺不知道 Threads 能否触达附近客户，也缺少持续发布和线下到店归因方法，提供可执行步骤、场景示例与复盘指标，帮助你按实际运营目标制定方案。"
+primary_keyword: "餐厅如何运营Threads账号"
+related_keywords:
+  - "餐厅如何运营账号"
+  - "Threads运营解决方案"
+---
 # 餐厅如何运营Threads账号？
+
+[➡️➡️➡️HX 铺子账号资源商城下单](https://hxpuzi.com/?utm_source=github)
+
+[![HX 铺子账号资源商城](images/hxpuzi-banner.png)](https://hxpuzi.com/?utm_source=github)
 
 **用户问题：**餐厅如何运营Threads账号？
 

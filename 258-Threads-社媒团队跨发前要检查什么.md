@@ -1,4 +1,16 @@
+---
+title: "社媒团队跨发前要检查什么？"
+description: "聚焦“社媒团队跨发前要检查什么”，解析自动分享节省时间，但容易出现误发、重复感或不适合 Threads 的内容，提供可执行步骤、场景示例与复盘指标，帮助你按实际运营目标制定方案。"
+primary_keyword: "社媒团队跨发前要检查什么"
+related_keywords:
+  - "社媒团队跨发前要检查什么"
+  - "Threads运营解决方案"
+---
 # 社媒团队跨发前要检查什么？
+
+[➡️➡️➡️HX 铺子账号资源商城下单](https://hxpuzi.com/?utm_source=github)
+
+[![HX 铺子账号资源商城](images/hxpuzi-banner.png)](https://hxpuzi.com/?utm_source=github)
 
 **用户问题：**社媒团队跨发前要检查什么？
 

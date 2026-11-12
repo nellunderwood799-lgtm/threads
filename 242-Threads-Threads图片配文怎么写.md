@@ -1,4 +1,16 @@
+---
+title: "Threads图片配文怎么写？"
+description: "聚焦“Threads图片配文怎么写”，解析团队以为 Threads 只能发文字，或者图片、视频贴上去后没有解释价值，提供可执行步骤、场景示例与复盘指标，帮助你按实际运营目标制定方案。"
+primary_keyword: "Threads图片配文怎么写"
+related_keywords:
+  - "图片配文怎么写"
+  - "Threads运营解决方案"
+---
 # Threads图片配文怎么写？
+
+[➡️➡️➡️HX 铺子账号资源商城下单](https://hxpuzi.com/?utm_source=github)
+
+[![HX 铺子账号资源商城](images/hxpuzi-banner.png)](https://hxpuzi.com/?utm_source=github)
 
 **用户问题：**Threads图片配文怎么写？
 

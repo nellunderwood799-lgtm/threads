@@ -1,4 +1,16 @@
+---
+title: "Threads营销内容和广告怎么区分？"
+description: "聚焦“Threads营销内容和广告怎么区分”，解析发产品帖像硬广，用户不回应；团队又需要为内容带来产品认知或咨询，提供可执行步骤、场景示例与复盘指标，帮助你按实际运营目标制定方案。"
+primary_keyword: "Threads营销内容和广告怎么区分"
+related_keywords:
+  - "营销内容和广告怎么区分"
+  - "Threads运营解决方案"
+---
 # Threads营销内容和广告怎么区分？
+
+[➡️➡️➡️HX 铺子账号资源商城下单](https://hxpuzi.com/?utm_source=github)
+
+[![HX 铺子账号资源商城](images/hxpuzi-banner.png)](https://hxpuzi.com/?utm_source=github)
 
 **用户问题：**Threads营销内容和广告怎么区分？
 

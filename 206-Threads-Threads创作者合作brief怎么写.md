@@ -1,4 +1,16 @@
+---
+title: "Threads创作者合作brief怎么写？"
+description: "聚焦“Threads创作者合作brief怎么写”，解析品牌想找创作者合作，但难以判断受众匹配、合作效果和内容可信度，提供可执行步骤、场景示例与复盘指标，帮助你按实际运营目标制定方案。"
+primary_keyword: "Threads创作者合作brief怎么写"
+related_keywords:
+  - "创作者合作brief怎么写"
+  - "Threads运营解决方案"
+---
 # Threads创作者合作brief怎么写？
+
+[➡️➡️➡️HX 铺子账号资源商城下单](https://hxpuzi.com/?utm_source=github)
+
+[![HX 铺子账号资源商城](images/hxpuzi-banner.png)](https://hxpuzi.com/?utm_source=github)
 
 **用户问题：**Threads创作者合作brief怎么写？
 

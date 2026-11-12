@@ -1,4 +1,16 @@
+---
+title: "Threads公开内容会被其他平台看到吗？"
+description: "聚焦“Threads公开内容会被其他平台看到吗”，解析团队对账号数据、内容权限、联邦宇宙传播、商业披露和平台规则理解不足，提供可执行步骤、场景示例与复盘指标，帮助你按实际运营目标制定方案。"
+primary_keyword: "Threads公开内容会被其他平台看到吗"
+related_keywords:
+  - "公开内容会被其他平台看到吗"
+  - "Threads运营解决方案"
+---
 # Threads公开内容会被其他平台看到吗？
+
+[➡️➡️➡️HX 铺子账号资源商城下单](https://hxpuzi.com/?utm_source=github)
+
+[![HX 铺子账号资源商城](images/hxpuzi-banner.png)](https://hxpuzi.com/?utm_source=github)
 
 **用户问题：**Threads公开内容会被其他平台看到吗？
 
